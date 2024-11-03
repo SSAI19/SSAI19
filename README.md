@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SSAI19
+- 👀 I’m interested in coding and designing
+- 🌱 I’m currently learning cybersecurity
+- 💞️ I’m looking to collaborate with new learners
